@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with 1inch trading bot smart Strategy | rug-pull-detection & staking-integration, the #1 1inch trading bot. Includes rug-pull-detection and
 
 
 
